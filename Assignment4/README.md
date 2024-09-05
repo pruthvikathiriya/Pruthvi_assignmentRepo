@@ -1,4 +1,4 @@
-Assignment 3: Pruthvi Kathiriya
+Assignment 3: Jay Chaudhary
 
 Submitting Date: 05/09/2024
 
